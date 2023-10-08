@@ -1,1 +1,1 @@
-# -Individual-Research-paper-Acceptance-Letter
+# Individual-Research-paper-Acceptance-Letter
